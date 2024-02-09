@@ -12,4 +12,4 @@ I do cool stuff, I like to work with networking mostly.
 -- -- -- -- -- -- -- -- -- --
 
 This account is brand new, so I can put all my projects
-in once place. 
+in once place. ☺️
